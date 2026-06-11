@@ -40,6 +40,7 @@ Connect with me:
 
 * LinkedIn: https://www.linkedin.com/in/abhineet-tandon248
 * Email: abhineettandon7@gmail.com
+
 "Security is not a product, but a process."
    — Bruce Schneier
 
